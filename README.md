@@ -18,3 +18,6 @@
 ![image](https://github.com/Statcyshyna555im/Lab5/assets/145069084/07c51a18-ad1b-4576-b1cd-b7392874ea2d)
 
 ![image](https://github.com/Statcyshyna555im/Lab5/assets/145069084/53a8bfcd-ca97-47a0-96f4-94b987516647)
+
+![image](https://github.com/Statcyshyna555im/Lab5/assets/145069084/54acb5fd-c775-46dd-9181-4544c58dd411)
+
