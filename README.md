@@ -22,3 +22,5 @@
 ![image](https://github.com/Statcyshyna555im/Lab5/assets/145069084/54acb5fd-c775-46dd-9181-4544c58dd411)
 
 ![image](https://github.com/Statcyshyna555im/Lab5/assets/145069084/7c6cbc30-520a-4295-b5fb-51e20ab2e767)
+
+![image](https://github.com/Statcyshyna555im/Lab5/assets/145069084/f596bfa8-a623-4a48-98d1-85549436b847)
